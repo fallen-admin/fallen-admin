@@ -2,6 +2,9 @@
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
 </p>
 <p align="center">
+   Currently trying to see how many people I can follow entirely out of entertainment
+</p>
+<p align="center">
    <img width="300" height="340" src="https://file.garden/au1asPGbEpA_fc0k/Untitled336_20261112175221.png" />
 </p>
 <p align="center">
