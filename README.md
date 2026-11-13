@@ -15,34 +15,12 @@
 <div align="center">
 <details>
   <summary>
-    ┆My Typology
+    ┆𝙼𝚒𝚕𝚎𝚜𝚝𝚘𝚗𝚎𝚜
   </summary>
 <div align= "center">
    -----------------------------------------
 
-   ✧ Temperament: Phlegmatic-sanguine 
-   
-   ✧ Enneagram: 9w8 sp/so947 
-
-   ✧ Tritype: The Gentle Spirit 
-
-   ✧ Big 5: rcU/A/I
-
-   ✧ Motives: acH[I]veG
-
-   ✧ Psychosophy: ELVF
-
-   ✧ Socionics: SEI
-
-   ✧ MBTI: Fi>Ni>Si>Te (INFP)
-   
-   ✧ Alignment: Neutral good
-
-   ✧ Archetype: the Caregiver
-
-   ✧ Jungian: Introverted feeling 
-
-   ✧ Attachmnent type: Secure anxious
+   ✧ 𝟷𝟷/𝟷𝟸/𝟸𝟶𝟸𝟼 - 
    
 </p>
 </details>
