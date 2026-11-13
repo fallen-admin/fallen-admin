@@ -7,3 +7,6 @@
 <p align="center">
    Go follow my main @sea-shantyyy!
 </p>
+<p align="center">
+   My typology if you're curious: 9w8 sp/so947 | rcU/A/[I] | 
+</p>
