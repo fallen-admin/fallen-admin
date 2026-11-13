@@ -11,18 +11,16 @@
 <div align="center">
 <details>
   <summary>
-    ┆My Typology if youre interested
+    ┆My Typology
   </summary>
 <div align= "center">
    -----------------------------------------
 
+   ✧ Temperament: Phlegmatic-sanguine 
+   
    ✧ Enneagram: 9w8 sp/so947 
 
    ✧ Tritype: The Gentle Spirit 
-
-   ✧ Integration: e3
-   
-   ✧ Disintegration: e6
 
    ✧ Big 5: rcU/A/I
 
@@ -31,8 +29,6 @@
    ✧ Psychosophy: ELVF
 
    ✧ Socionics: SEI
-
-   ✧ Temperament: Phlegmatic-sanguine 
 
    ✧ MBTI: Fi>Ni>Si>Te (INFP)
    
@@ -44,7 +40,6 @@
 
    ✧ Attachmnent type: Secure anxious
    
-   ---
 </p>
 </details>
 <p align="center">
