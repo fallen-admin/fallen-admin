@@ -4,6 +4,9 @@
 <p align="center">
    Ƈυrrᥱᥒtᥣყ trყ𝚒ᥒg to sᥱᥱ how mᥲᥒყ ρᥱoρᥣᥱ 𝙸 ᥴᥲᥒ foᥣᥣow for fυᥒ...
 </p>
+
+<p align="center">
+   <a href="https://hits.sh/github.com/fallen-admin/"><img alt="Hits" src="https://hits.sh/github.com/fallen-admin.svg?label=%C9%B4%E1%B4%80%E1%B4%98%EA%9C%B1%20%E1%B4%9B%E1%B4%80%E1%B4%8B%E1%B4%87%C9%B4&color=fec37a&labelColor=ffe0b5"/></a>
 <p align="center">
    <img width="300" height="340" src="https://file.garden/au1asPGbEpA_fc0k/Untitled336_20261112175221.png" />
 </p>
