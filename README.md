@@ -2,13 +2,13 @@
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
 </p>
 <p align="center">
-   𝐶𝑢𝑟𝑟𝑒𝑛𝑡𝑙𝑦 𝑡𝑟𝑦𝑖𝑛𝑔 𝑡𝑜 𝑠𝑒𝑒 ℎ𝑜𝑤 𝑚𝑎𝑛𝑦 𝑝𝑒𝑜𝑝𝑙𝑒 𝐼 𝑐𝑎𝑛 𝑓𝑜𝑙𝑙𝑜𝑤 𝑓𝑜𝑟 𝑎𝑏𝑠𝑜𝑙𝑢𝑡𝑒𝑙𝑦 𝑛𝑜 𝑟𝑒𝑎𝑠𝑜𝑛
+   Ƈυrrᥱᥒtᥣყ trყ𝚒ᥒg to sᥱᥱ how mᥲᥒყ ρᥱoρᥣᥱ 𝙸 ᥴᥲᥒ foᥣᥣow for fυᥒ...
 </p>
 <p align="center">
    <img width="300" height="340" src="https://file.garden/au1asPGbEpA_fc0k/Untitled336_20261112175221.png" />
 </p>
 <p align="center">
-   Ɠo foᥣᥣow mყ mᥲ𝚒ᥒ: @sea-shantyyy
+   𝐺𝑜 𝑓𝑜𝑙𝑙𝑜𝑤 𝑚𝑦 𝑚𝑎𝑖𝑛: @sea-shantyyy
 </p>
 
 <!--INFO-->
