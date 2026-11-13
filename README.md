@@ -10,6 +10,7 @@
 <p align="center">
    Ɠo foᥣᥣow mყ mᥲ𝚒ᥒ: @sea-shantyyy
 </p>
+
 <!--INFO-->
 <div align="center">
 <details>
@@ -45,6 +46,7 @@
    
 </p>
 </details>
+
 <p align="center">
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
 </p>
