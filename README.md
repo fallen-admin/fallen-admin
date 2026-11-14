@@ -1,10 +1,7 @@
 <p align="center">
-   <img width="500" height="40" src="https://file.garden/au1asPGbEpA_fc0k/Tumblr_l_59428610652170.jpg" />
+   <img width="500" height="35" src="https://file.garden/au1asPGbEpA_fc0k/Tumblr_l_59428610652170.jpg" />
 </p>
 
-<p align="center">
-   ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
-</p>
 <p align="center">
    Ƈυrrᥱᥒtᥣყ trყ𝚒ᥒg to sᥱᥱ how mᥲᥒყ ρᥱoρᥣᥱ 𝙸 ᥴᥲᥒ foᥣᥣow for fυᥒ...
 </p>
