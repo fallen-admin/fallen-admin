@@ -15,8 +15,8 @@
 </p>
 
 <p align="center">
-  <a href="https://miwacat.atabook.org/">
-    <img src="https://file.garden/au1asPGbEpA_fc0k/Untitled338_20261113194359.png"/>
+  <a href="https://github.com/sea-shantyyy">
+    <img width="130" height="50" src="https://file.garden/au1asPGbEpA_fc0k/Untitled338_20261113194359.png"/>
   </a>
 </p>
 
