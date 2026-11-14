@@ -44,17 +44,21 @@
 <div align= "center">
    -----------------------------------------
 
-   ✧ **𝟷𝟷/𝟷𝟸/𝟸𝟶𝟸𝟼** - 𝟸𝟷𝟷▪︎𝟷𝟸𝟹 ꜰᴏʟʟᴏᴡᴇʀꜱ, 𝟷.𝟻ᴋ ꜰᴏʟʟᴏᴡɪɴɢ
+   ✧ <a href="https://github.com/twottimey"> @twottimey</a>, 
 
-   ✧ **𝟷𝟷/𝟷𝟹/𝟸𝟶𝟸𝟼** - 𝟸𝟹𝟿▪︎𝟷𝟻𝟶 ꜰᴏʟʟᴏᴡᴇʀꜱ, 𝟸.0ᴋ ꜰᴏʟʟᴏᴡɪɴɢ
+   ✧ <a href="https://github.com/witheringpetals"> @witheringpetals</a>, 
 
-   ✧ **𝟷𝟷/𝟷𝟺/𝟸𝟶𝟸𝟼** - ɴ/ᴀ▪︎ɴ/ᴀ ꜰᴏʟʟᴏᴡᴇʀꜱ, ɴ/ᴀ ꜰᴏʟʟᴏᴡɪɴɢ
+   ✧ <a href="https://github.com/TheRealVivian"> @TheRealVivian</a>, 
+
+   ✧ <a href="https://github.com/MAFIAPUP"> @MAFIAPUP</a>,
+
+   ✧ <a href="https://github.com/fishyyyy3"> @fishyyyy3,
+
+   ✧ <a href="https://github.com/elliot-builder-fictkin"> @elliot-builder-fictkin,
+
+   ✧ <a href="https://github.com/Coinsflips"> @Coinsflips</a>,
 </p>
 </details>
-
-<p align="center">
-ᵂʰʸ ⁱˢ ᵗʰⁱˢ ᶜᵘᵗᵉʳ ᵗʰᵃⁿ ᵐʸ ᵐᵃⁱⁿ...
-</p>
 
 <p align="center">
    ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ⊹ ⏝ ͝ ︶𝅄⏝ ͝  ͝ ⏝𝅄︶ ͝ ⏝ ͝
