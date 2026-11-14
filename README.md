@@ -11,7 +11,13 @@
    <img width="300" height="340" src="https://file.garden/au1asPGbEpA_fc0k/Untitled336_20261112175221.png" />
 </p>
 <p align="center">
-   𝐺𝑜 𝑓𝑜𝑙𝑙𝑜𝑤 𝑚𝑦 𝑚𝑎𝑖𝑛: @sea-shantyyy
+   𝐺𝑜 𝑓𝑜𝑙𝑙𝑜𝑤 𝑚𝑦 𝑚𝑎𝑖𝑛!
+</p>
+
+<p align="center">
+  <a href="https://miwacat.atabook.org/">
+    <img src="https://file.garden/au1asPGbEpA_fc0k/Untitled338_20261113194359.png"/>
+  </a>
 </p>
 
 <!--INFO-->
