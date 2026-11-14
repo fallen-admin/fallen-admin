@@ -44,19 +44,19 @@
 <div align= "center">
    -----------------------------------------
 
-   ✧ <a href="https://github.com/twottimey"> @twottimey</a>, 
+   ✧ <a href="https://github.com/twottimey"> @twottimey</a>
 
-   ✧ <a href="https://github.com/witheringpetals"> @witheringpetals</a>, 
+   ✧ <a href="https://github.com/witheringpetals"> @witheringpetals</a>
 
-   ✧ <a href="https://github.com/TheRealVivian"> @TheRealVivian</a>, 
+   ✧ <a href="https://github.com/TheRealVivian"> @TheRealVivian</a>
 
-   ✧ <a href="https://github.com/MAFIAPUP"> @MAFIAPUP</a>,
+   ✧ <a href="https://github.com/MAFIAPUP"> @MAFIAPUP</a>
 
-   ✧ <a href="https://github.com/fishyyyy3"> @fishyyyy3,
+   ✧ <a href="https://github.com/fishyyyy3"> @fishyyyy3
 
-   ✧ <a href="https://github.com/elliot-builder-fictkin"> @elliot-builder-fictkin,
+   ✧ <a href="https://github.com/elliot-builder-fictkin"> @elliot-builder-fictkin
 
-   ✧ <a href="https://github.com/Coinsflips"> @Coinsflips</a>,
+   ✧ <a href="https://github.com/Coinsflips"> @Coinsflips</a>
 </p>
 </details>
 
