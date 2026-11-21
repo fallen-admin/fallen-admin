@@ -21,7 +21,7 @@
 <div align="center">
 <details>
   <summary>
-    ┆𝙼𝚒𝚕𝚎𝚜𝚝𝚘𝚗𝚎𝚜
+    ┆𝙳𝚊𝚒𝚕𝚢 𝙼𝚒𝚕𝚎𝚜𝚝𝚘𝚗𝚎𝚜
   </summary>
 <div align= "center">
    -----------------------------------------
